@@ -1,4 +1,4 @@
-Hi, I'm Van Gia Bao!
+Hi, I'm Gia Bao
 
 I'm an Economics student at International University, VNU-HCMC, specializing in Economic Data Analysis.
 
